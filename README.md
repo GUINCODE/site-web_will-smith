@@ -1,1 +1,1 @@
-site vitre de l'acteur WILL SMITH
+site vitrine de l'acteur WILL SMITH
